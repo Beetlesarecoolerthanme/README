@@ -24,6 +24,11 @@
 
  <img width="650" height="700" alt="artful's github" src="https://i.pinimg.com/736x/58/89/dc/5889dc62aff7d8a68893e2f729da3ee3.jpg" />
  
-<p align="right">
- 
+<p align="left">
 
+ ### ✦ Problematic , racist , homophobic members of the audience are not accepted .
+
+### ✦ Those who say slurs , whether you can reclaim them or not , make your way out , please and thank you .
+
+### ✦ Finally , this is not a beginner friendly show . If you're new ( to pony town ) , exit through the back doors .
+ 
