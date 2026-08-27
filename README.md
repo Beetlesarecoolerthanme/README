@@ -46,8 +46,6 @@
 
 ### ✦ For my second performance . . 
 
-</div>
-
-### ✦ ✦ ✦ ✦ ✦ ✦ ✦ ✦
+### ✦ ✦ ✦ ✦ ✦ ✦ ✦ ✦ ✦ ✦ ✦ ✦ ✦
 
 ### ✦ Cuddles / hugs ( c + H ) is ALWAYS encouraged around here ! Don't be afraid to give the magician a big hug as I don't bite . I promise .
