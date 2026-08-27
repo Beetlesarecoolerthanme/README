@@ -24,7 +24,7 @@
 
  <img width="650" height="700" alt="artful's github" src="https://i.pinimg.com/736x/58/89/dc/5889dc62aff7d8a68893e2f729da3ee3.jpg" />
  
-<p align="left">
+<div align="right">
 
  ### ✦ Problematic , racist , homophobic members of the audience are not accepted .
 
