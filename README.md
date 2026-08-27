@@ -6,4 +6,6 @@
 
 <p align="left">
  
-### ✦  Kittyshot , Sillymed , Artful
+### ✦  Kittyshot
+### ✦  Sillymed
+### ✦  Artful
