@@ -8,7 +8,4 @@
 
 <p align="left">
  
-### ✦  Kittyshot
-### ✦  Sillymed
-### ✦  Artful
-### ✦  < --- That's me !
+### ✦  Welcome to my Art Show . You can call me Kittyshot , Sillymed , or Artful . I am Artful after all .
