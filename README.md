@@ -6,4 +6,4 @@
 
 <p align="left">
  
-### ✦  Certified Artful kin ! !
+### ✦  guhh heavy wip.. i drained out midway thru this
