@@ -68,6 +68,8 @@
 
 ### ✦ That's the end of my art show , civilians ! I deeply appreciate you all for coming and listening , until next time , folks !
 
+> *Credits to BEETLESARECOOLERTHANME on Github for making this AWESOME README*
+> ---
  <div align="right">
 
 <img align="right" src="https://64.media.tumblr.com/657d2e76fa446b6632d6e8ebd5aefe12/6dfcd85b599db593-ed/s100x200/d323cb611b5a3dba54e7d370858fd9ef22380fbd.pnj" />
@@ -75,8 +77,6 @@
 <img align="right" src="https://64.media.tumblr.com/ec1764d6a53605b6fc366ae02a5e5885/f7835d3ddfe3e13b-db/s500x750/346fcd260f65b1202124e8e66cd693bc2e82b92c.gifv" />
 
 <div align="left">
-
-> *Credits to BEETLESARECOOLERTHANME on Github for making this AWESOME README*
-> ---
+ 
 > *Beetlesarecoolerthanme was here*
 
