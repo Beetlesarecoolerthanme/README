@@ -17,7 +17,9 @@
 ![](https://komarev.com/ghpvc/?username=KALE1D0SCOPE&color=000000&label=AUDIENCE+NUMBERS&style=plastic&abbreviation=true)
 
  <div align="right">
+  
 ### ✦  I must stress this as I don't want these . . creatures attending my future shows at all ! ( aka dni ) 
+
  <img width="650" height="700" alt="artful's github" src="https://i.pinimg.com/736x/58/89/dc/5889dc62aff7d8a68893e2f729da3ee3.jpg" />
  
 <p align="right">
