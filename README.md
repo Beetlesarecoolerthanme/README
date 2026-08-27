@@ -18,4 +18,4 @@
 
  <div align="right">
 
- <img width="600" height="700" alt="mafioso github" src="https://i.pinimg.com/736x/8b/99/68/8b99687a5fbf69e3523645e64ef02170.jpg" />
+ <img width="600" height="700" alt="mafioso github" src="https://i.pinimg.com/736x/58/89/dc/5889dc62aff7d8a68893e2f729da3ee3.jpg" />
