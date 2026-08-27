@@ -23,8 +23,6 @@
  <div align="right">
 
 <img align="right" src="https://i.pinimg.com/736x/58/89/dc/5889dc62aff7d8a68893e2f729da3ee3.jpg" />
-
-width="600" height="550" align="right"
  
 <p align="right">
 
