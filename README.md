@@ -6,4 +6,4 @@
 
 <p align="left">
  
-### ✦  guhh heavy wip.. i drained out midway thru this
+### ✦  Kittyshot , Sillymed , Artful
