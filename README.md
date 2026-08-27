@@ -20,7 +20,7 @@
   
 ### ✦  I must stress this as I don't want these . . creatures attending my future shows at all ! ( aka dni ) 
 
-</p>
+---
 
  <div align="right">
 
