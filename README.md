@@ -63,3 +63,17 @@
 <div align="left">
 
 ### ✦ When the performer ( me ) greets you . . . , just give a boop or a hello ! I can come out of my shell sometimes .
+
+<div align="center">
+
+### ✦ That's the end of my art show , civilians ! I deeply appreciate you all for coming and listening , until next time , folks !
+
+ <div align="right">
+
+<img align="right" src="https://64.media.tumblr.com/657d2e76fa446b6632d6e8ebd5aefe12/6dfcd85b599db593-ed/s100x200/d323cb611b5a3dba54e7d370858fd9ef22380fbd.pnj" />
+
+<div align="left">
+
+> *Credits to BEETLESARECOOLERTHANME on Github for making this AWESOME README*
+> *Beetlesarecoolerthanme was here*
+
