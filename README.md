@@ -18,7 +18,7 @@
 
  <div align="center">
   
-### ✦  I must stress this as I don't want these . . creatures attending my future shows at all ! ( aka dni ) 
+### ✦  I must stress this as I don't want these . . creatures attending my future shows at all ! ( aka dni ) v v
 
 ---
 
