@@ -6,4 +6,4 @@
 
 <p align="left">
  
-### ︵ ︶ Certified Artful kin ! !
+### ✦ Certified Artful kin ! !
