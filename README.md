@@ -8,4 +8,7 @@
 
 <p align="left">
  
-### ✦  Welcome to my Art Show . You can call me Kittyshot , Sillymed , or Artful . I am Artful after all .
+### ✦  Welcome to my Art Show . You can call me Kittyshot , Sillymed , or Artful . I am Artful anyways .
+
+### ✦  In this art show you will learn the important information you need to know about me , so please , settle in your seat .
+
