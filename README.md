@@ -53,3 +53,5 @@
 <img align="left" src="https://64.media.tumblr.com/985b7fb5167bf6eb2c36fe0ae99afb02/850c4389318e9824-26/s100x200/d6da7869cb1ba4732daf48d683266482178a34ed.pnj" />
 
 ### ✦ Cuddles / hugs ( c + H ) is ALWAYS encouraged around here ! Don't be afraid to give the magician a big hug as I don't bite . I promise .
+
+### ✦ When the performer ( me ) greets you . . . , just give a boop or a hello ! I can come out of my shell sometimes .
