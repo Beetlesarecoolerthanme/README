@@ -77,5 +77,6 @@
 <div align="left">
 
 > *Credits to BEETLESARECOOLERTHANME on Github for making this AWESOME README*
+> ---
 > *Beetlesarecoolerthanme was here*
 
