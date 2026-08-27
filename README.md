@@ -8,7 +8,8 @@
 
 <p align="left">
  
-### ✦  Welcome to my Art Show . You can call me Kittyshot , Sillymed , or Artful . I am Artful anyways .
+### ✦  Welcome to my Art Show . You can call me Kittyshot , Sillymed , or Artful . I am Artful after all .
 
 ### ✦  In this art show you will learn the important information you need to know about me , so please , settle in your seat .
 
+### ✦  Also , huge warning before the performance starts . . I am a MINOR ! That's right . So , be careful of what you say and how you interact with me .
