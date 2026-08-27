@@ -39,7 +39,13 @@
 <img align="right" src="https://64.media.tumblr.com/23f717f1a0f0c888996069c0b7e99a78/850c4389318e9824-bf/s250x400/23550de3a77d280663164407977c103c8ed04245.pnj" />
 
  <img align="right" src="https://64.media.tumblr.com/f4e48cd48d49aae0eb5b03e02feeaa48/850c4389318e9824-ba/s250x400/0645415f290884083a77c9706c0b5dd42dbb5293.gifv"/>
-
+ 
+ ---
+ 
 <div align="left">
+
+### ✦ For my second performance . . 
+
+</div>
 
 ### ✦ 
