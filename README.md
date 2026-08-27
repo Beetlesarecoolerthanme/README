@@ -56,4 +56,6 @@
 
 <img align="right" src="https://64.media.tumblr.com/2d1d9bb876481beca75f86c39192ccdb/850c4389318e9824-fa/s100x200/b73003f70d4783b26417d14ed5a14b225d7c8035.pnj" />
 
+<img align="right" src="https://64.media.tumblr.com/c7a68dfe42dca5802ac87895df9e8b03/850c4389318e9824-a6/s100x200/9ec17f58522753245e139525be40ad90bd7056a2.gifv" />
+
 ### ✦ When the performer ( me ) greets you . . . , just give a boop or a hello ! I can come out of my shell sometimes .
