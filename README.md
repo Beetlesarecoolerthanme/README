@@ -33,4 +33,6 @@
 ### ✦ Those who say slurs , whether you can reclaim them or not , make your way out , please and thank you .
 
 ### ✦ Finally , this is not a beginner friendly show . If you're new ( to pony town ) , exit through the back doors .
- 
+
+
+ <img align="right" src="https://64.media.tumblr.com/f4e48cd48d49aae0eb5b03e02feeaa48/850c4389318e9824-ba/s250x400/0645415f290884083a77c9706c0b5dd42dbb5293.gifv"/>
