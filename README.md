@@ -42,10 +42,12 @@
  
  ---
  
-<div align="left">
+<div align="right">
 
 ### ✦ For my second performance . . 
 
 ### ✦ ✦ ✦ ✦ ✦ ✦ ✦ ✦ ✦ ✦ ✦ ✦ 
+
+<img align="right" src="https://64.media.tumblr.com/3d409088c387cdd3b12a37c291effbc0/850c4389318e9824-54/s100x200/198ad0b52b20037b3b6ea4465ed8344e2095c90c.gifv" />
 
 ### ✦ Cuddles / hugs ( c + H ) is ALWAYS encouraged around here ! Don't be afraid to give the magician a big hug as I don't bite . I promise .
