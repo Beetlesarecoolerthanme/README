@@ -15,3 +15,7 @@
 ### ✦  With that out of the way , now , the show may begin . 
 
 ![](https://komarev.com/ghpvc/?username=KALE1D0SCOPE&color=000000&label=AUDIENCE+NUMBERS&style=plastic&abbreviation=true)
+
+ <div align="right">
+
+<img align="right" src="https://i.pinimg.com/736x/8b/99/68/8b99687a5fbf69e3523645e64ef02170.jpg">
