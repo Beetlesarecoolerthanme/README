@@ -48,7 +48,7 @@
 
 ### ✦ For my second performance . . 
 
-### ✦ ✦ ✦ ✦ ✦ ✦ ✦ ✦ ✦ ✦ ✦ ✦ 
+### ✦  ✦  ✦ 
 
 <img align="left" src="https://64.media.tumblr.com/3d409088c387cdd3b12a37c291effbc0/850c4389318e9824-54/s100x200/198ad0b52b20037b3b6ea4465ed8344e2095c90c.gifv" />
 
@@ -67,6 +67,14 @@
 <div align="left">
 
 ### ✦ For my final performance . . .
+
+### ✦ ✦ ✦
+
+### LINKS ! > > 
+
+[Tiktok . . .](https://www.TikTok.com//@Sillymed_fting)
+
+[Discord . . . ](https://discord.gg/r9zg8cgJ)
 
 <div align="center">
 
