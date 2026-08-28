@@ -82,6 +82,12 @@
 
 ### ✦ That's the end of my art show , civilians ! I deeply appreciate you all for coming and listening , until next time , folks !
 
+<div align="center">
+ 
+### ✦
+
+### ✦
+
 > *Credits to BEETLESARECOOLERTHANME on Github for making this AWESOME README*
 > ---
  <div align="right">
