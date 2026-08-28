@@ -64,21 +64,19 @@
 
 ### ✦ When the performer ( me ) greets you . . . , just give a boop or a hello ! I can come out of my shell sometimes .
 
-<div align="left">
+<div align="center">
 
 ### ✦ For my final performance . . .
 
 ### ✦ ✦ ✦
 
-<div align="center">
+---
 
 ### v LINKS ! v 
 
 [Tiktok . . .](https://www.TikTok.com//@Sillymed_fting)
 
 [Discord . . . ](https://discord.gg/r9zg8cgJ)
-
-<div align="center">
 
 ### ✦ That's the end of my art show , civilians ! I deeply appreciate you all for coming and listening , until next time , folks !
 
