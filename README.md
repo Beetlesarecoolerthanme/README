@@ -70,7 +70,7 @@
 
 ### ✦ ✦ ✦
 
-<div align="right">
+<div align="center">
 
 ### v LINKS ! v 
 
