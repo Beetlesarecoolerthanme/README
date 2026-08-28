@@ -66,7 +66,7 @@
 
 <div align="center">
 
-### ✦ For my final performance . . .
+### ✦ And lastly but not least , my final performance . . .
 
 ### ✦ ✦ ✦
 
@@ -77,6 +77,8 @@
 [Tiktok . . .](https://www.TikTok.com//@Sillymed_fting)
 
 [Discord . . . ](https://discord.gg/r9zg8cgJ)
+
+---
 
 ### ✦ That's the end of my art show , civilians ! I deeply appreciate you all for coming and listening , until next time , folks !
 
