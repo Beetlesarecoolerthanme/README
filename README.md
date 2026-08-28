@@ -70,7 +70,9 @@
 
 ### ✦ ✦ ✦
 
-### LINKS ! > > 
+<div align="right">
+
+### v LINKS ! v 
 
 [Tiktok . . .](https://www.TikTok.com//@Sillymed_fting)
 
