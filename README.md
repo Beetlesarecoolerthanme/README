@@ -64,6 +64,10 @@
 
 ### ✦ When the performer ( me ) greets you . . . , just give a boop or a hello ! I can come out of my shell sometimes .
 
+<div align="left">
+
+### ✦ For my final performance . . .
+
 <div align="center">
 
 ### ✦ That's the end of my art show , civilians ! I deeply appreciate you all for coming and listening , until next time , folks !
