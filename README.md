@@ -24,9 +24,9 @@
 
 ---
 
- <div align="right">
+ <div align="center">
 
-<img align="right" src="https://i.pinimg.com/736x/58/89/dc/5889dc62aff7d8a68893e2f729da3ee3.jpg" />
+<img align="center" src="https://i.pinimg.com/736x/58/89/dc/5889dc62aff7d8a68893e2f729da3ee3.jpg" />
  
 <p align="right">
 
